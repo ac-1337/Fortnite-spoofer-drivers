@@ -1,2 +1,4 @@
 # Fortnite-HWID-spoofer-drivers
-Flaming Hottie &lt;3
+Updating it soon tho.
+Enjoy <3.
+Flaming hottie
